@@ -1,4 +1,4 @@
-- 🗿 Wassup, I’m @hypOG
+- 🗿 Hi, I’m @hypOG
 - 💻 I’m currently taking a degree in Computer Science...
 - 🏋🏽 Gymrat
 - 🇵🇹 I live in Porto
