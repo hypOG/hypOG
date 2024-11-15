@@ -1,6 +1,5 @@
 - 🗿 Hi, I’m @hypOG
 - 💻 I’m currently taking a degree in Software Engineering
-- 🏋🏽 Gymrat
 - 🎯 My goals: + Knowledge, Finish my degree, Be able to help this community grow
 - 📫 How to reach me ...(soon)
 
