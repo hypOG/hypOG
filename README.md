@@ -1,7 +1,6 @@
 - 🗿 Hi, I’m @hypOG
-- 💻 I’m currently taking a degree in Computer Science...
+- 💻 I’m currently taking a degree in Software Engineering
 - 🏋🏽 Gymrat
-- 🇵🇹 I live in Porto
 - 🎯 My goals: + Knowledge, Finish my degree, Be able to help this community grow
 - 📫 How to reach me ...(soon)
 
